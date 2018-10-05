@@ -1,1 +1,0 @@
-# Global.github.io
